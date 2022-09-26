@@ -4,11 +4,15 @@
 
 Hiện nay, [**máy hút ẩm**](https://giaiphaphutam.com/) không khí đang là giải pháp cân bằng ẩm hiệu quả trong gia đình, hay thậm chí những khu vực quy mô công nghiệp như nhà máy, xí nghiệp, kho xưởng bảo quản bởi vì từ lâu, Việt Nam luôn là khu vực có độ ẩm không khí rất cao, dao động khoảng 70-80% hay thậm chí 90% khi vào mùa mưa gây ra thời tiết nồm ẩm, tạo điều kiện cho nấm mốc sinh sôi, phát triển gây hư hỏng các thiết bị điện tử, đồ gỗ nội thất, gây mùi hôi ẩm mốc quần áo và ảnh hưởng trực tiếp đến sức khỏe con người, đặc biệt là người già và trẻ em.
 
+![máy hút ẩm không khí Hoàng Quân](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/may-hut-am.jpg)
+
 Việc trang bị **máy hút ẩm** giúp xử lý độ ẩm cao và duy trì ở mức lý tưởng tốt cho sức khỏe con người, hạn chế tối đa tình trạng ẩm mốc do vi sinh vật, gây mùi hôi quần áo hay gây rỉ sét các thiết bị điện trong nhà như tivi, máy tính, máy ảnh, giấy tờ sổ sách. Với thiết kế ngày càng thon gọn **máy hút ẩm** được lắp đặt sử dụng chủ yếu trong không gian gia đình như phòng khách, phòng ngủ, phòng bếp, tủ quần áo hay các kho bải quản thực phẩm.
 
 ## Mua máy hút ẩm gia đình chống nồm ẩm tại Hoàng Quân
 
 Hiện nay công ty Hoàng Quân là đơn vị chuyên cung cấp các dòng [**máy hút ẩm gia đình**](https://giaiphaphutam.com/may-hut-am-gia-dinh/) chống nồm ẩm không khí cực kì hiệu quả với giá thành tương đối thấp. Model **máy hút ẩm gia đình** dân dụng ngoài khả năng hút và cân bằng độ ẩm không khí còn sở hữu các chức năng như hẹn giờ, sấy quần áo, khử mùi nồm ẩm, lọc không khí loại bỏ các tác nhân gây hại đường hô hấp cực kì hiệu quả nhờ các tấm màng HEPA và công nghệ ion âm, ionizer mang đến bầu không khí sống trong lành.
+
+![máy hút ẩm gia đình](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/may-hut-am-gia-dinh.jpg)
 
 Các dòng **máy hút ẩm gia đình** không khí tại Hoàng Quân đều có sẵn nhiều thiết kế hiện đại, tân thời với vỏ nhựa ABS chống mài mòn và cách điện an toàn, có thể dễ dàng sử dụng lắp đặt và sử dụng trong mọi diện tích từ 20-100m2 như không gian phòng khách, phòng ngủ, phòng bếp, hành lang, phòng vệ sinh, tủ quần áo, phòng làm việc,...nhờ công suất hút ẩm 12-50 lít/ngày giúp giữ độ ẩm an toàn từ 30% đến 70% cho nhà ở, phòng chống sự sinh sôi của các loại vi khuẩn và nấm mốc.
 
@@ -26,6 +30,8 @@ Các model **máy hút ẩm dân dụng** giá rẻ được nhiều gia đình 
 
 Bên cạnh các dòng **máy hút ẩm** dân dụng giá rẻ dùng cho gia đình, Giải Pháp Hút Ẩm Hoàng Quân còn cung cấp chính hãng các dòng [**máy hút ẩm công nghiệp**](https://giaiphaphutam.com/may-hut-am-cong-nghiep/) công suất lớn giúp duy trì độ ẩm cần thiết trong bảo quản các thiết bị, vật tư sản xuất như linh kiện điện tử, vải lụa ngành may mặc, nội thất đồ gỗ, thiết bị gia dụng, Da giày, Thiết bị máy ảnh, máy móc...hay hỗ trợ sản xuất sấy khô nhang, sấy thực phẩm nông sản, đồ khô lương thực. **Máy hút ẩm công nghiệp** là thiết bị không thể thiếu với nhà máy, xí nghiệp dệt may, xưởng sắt gỗ, kho bảo quản linh kiện vật tư, nhà hàng, kho shop quần áo.
 
+![máy hút ẩm công nghiệp](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/may-hut-am-cong-nghiep.jpg)
+
 Trang bị **máy hút ẩm công nghiệp** mang lại hiệu quả kinh tế to lớn cho doanh nghiệp, xí nghiệp, nhà máy với khả năng kiểm soát độ ẩm chính xác theo tiêu chuẩn của từng ngành, đồng thời hạn chế rủi ro thất thoát máy móc bị hiện tượng gỉ sét, ăn mòn, hỏng hóc, đồng thời việc độ ẩm được cân bằng xử lý còn góp phần bảo vệ sức khỏe người lao động, nâng cao năng suất lao động.
 
 Công ty Hoàng Quân là đơn vị chuyên cung cấp các giải pháp hút ẩm công nghiệp chi phí phù hợp với các dòng **máy hút ẩm công suất lớn** từ 100-750 lít/ngày, đáp ứng sử dụng cho các diện tích không gian công nghiệp quy mô trên 200m2. Tất cả  sản phẩm đều cam kết chính hãng thương hiệu lớn như FujiE, Kosmen, Harison, IKENO với chất lượng nhập khẩu chính ngạch, nguyên kiện nguyên đai khi đến tay khách hàng.
@@ -41,6 +47,8 @@ Công ty Hoàng Quân là đơn vị chuyên cung cấp các giải pháp hút �
 
 Ngoài các dòng **máy hút ẩm**, thiết bị xử lý ẩm chuyên nghiệp trong gia đình, công nghiệp thì công ty Hoàng Quân còn cung cấp ra thị trường các dòng [**tủ chống ẩm** ](https://giaiphaphutam.com/tu-chong-am/)cao cấp giúp bảo quản các thiết bị máy chụp ảnh, máy ảnh kỹ thuật số quay phim, ống kính ống lens chụp xa, siêu xa, ống kinh thiên văn, kính hiển vi với thiết kế dạng tủ đứng 2 hoặc 3 tầng có thể chứa được số lượng các thiết bị, máy móc tránh khỏi nhiệt độ cao và ẩm mốc.
 
+![tủ chống ẩm máy ảnh](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/tu-chong-am-nikatei-nc30c.jpg)
+
 Các model **tủ chống ẩm** được Hoàng Quân cung cấp chính hãng thương hiệu Digi Cabin, Ailite, FujiE, Nikatei, Eureka, Hiniso, Andbon, Wonderful, Eirmai,...với chính sách bảo hành chuyên nghiệp, đa dạng mẫu mã công suất cùng chất lượng ổn định, tiết kiệm điện năng. Thiết kế tủ chống ẩm sang trọng với cánh tủ kính chống xước chịu va đập, thân tủ làm bằng tôn dày 1.5mm đúc dập khuôn được sơn tĩnh điện đảm bảo an toàn cho các thiết bị, đa dạng dung tích hút ẩm phù hợp mọi không gian nội thất.
 
 Những dòng **tủ chống ẩm** được quan tâm nhiều nhất tại Hoàng Quân:
@@ -51,6 +59,8 @@ Những dòng **tủ chống ẩm** được quan tâm nhiều nhất tại Hoà
 ## Dịch vụ cho thuê máy hút ẩm dân dụng công nghiệp tiết kiệm chi phí
 
 Bên cạnh việc cung cấp giải pháp hút ẩm và bán chính hãng các dòng **máy hút ẩm** không khí thì công ty Hoàng Quân còn cung cấp dịch vụ [**cho thuê máy hút ẩm**](https://giaiphaphutam.com/san-pham/dich-vu-cho-thue-may-hut-am.htm) với đa dạng lựa chọn. Từ công suất vừa và nhỏ 12-60 lít/ngày dùng cho gia đình đến công suất lớn trên 100 lít/ngày cho kho xưởng nhà máy với chi phí tiết kiệm nhất với hợp đồng thuê theo ngày hoặc theo tháng tùy theo nhu cầu sử dụng. Các thiết bị **máy hút ẩm** cho thuê đều cam kết chính hãng các thương hiệu lớn như FujiE, Kosmen, Harison, Edison, Sharp,...với chất lượng sử dụng cao cấp, đáp ứng mọi nhu cầu sử dụng gia đình cho tới công nghiệp.
+
+![cho thuê máy hút ẩm](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/cho-thue-may-hut-am.jpg)
 
 ## Vì sao nên mua máy hút ẩm không khí chính hãng tại Hoàng Quân?
 
@@ -93,3 +103,17 @@ https://giaiphaphutam.com/may-hut-am-harison/
 https://giaiphaphutam.com/tu-chong-am/
 
 https://giaiphaphutam.com/san-pham/dich-vu-cho-thue-may-hut-am.htm
+
+![máy hút ẩm fujie](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/may-hut-am-cong-nghiep-fujie-hm1500d03321.jpg)
+
+![máy hút ẩm kosmen](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/may-hut-am-kosmen-km-20n02130.jpg)
+
+![máy hút ẩm edison](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/may-hut-am-edison-ed27b12321.jpg)
+
+![máy hút ẩm sharp](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/may-tao-ion-loc-khong-khi-va-hut-am-sharp-dwj27fvs23203.jpg)
+
+![máy hút ẩm aikyo](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/may-hut-am-aikyo-ad1800b03233.jpg)
+
+![máy hút ẩm harison](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/may-hut-am-harison-hd192b01120.jpg)
+
+![máy hút ẩm ikeno](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/may-hut-am-cong-nghiep-ikeno-id6000s11121.jpg)

@@ -102,8 +102,6 @@ https://giaiphaphutam.com/may-hut-am-harison/
 
 https://giaiphaphutam.com/tu-chong-am/
 
-https://giaiphaphutam.com/san-pham/dich-vu-cho-thue-may-hut-am.htm
-
 ![máy hút ẩm fujie](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/may-hut-am-cong-nghiep-fujie-hm1500d03321.jpg)
 
 ![máy hút ẩm kosmen](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/may-hut-am-kosmen-km-20n02130.jpg)

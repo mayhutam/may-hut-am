@@ -58,13 +58,13 @@ Những dòng **tủ chống ẩm** được quan tâm nhiều nhất tại Hoà
 
 ## Dịch vụ cho thuê máy hút ẩm dân dụng công nghiệp tiết kiệm chi phí
 
-Bên cạnh việc cung cấp giải pháp hút ẩm và bán chính hãng các dòng **máy hút ẩm** không khí thì công ty Hoàng Quân còn cung cấp dịch vụ [**cho thuê máy hút ẩm**](https://giaiphaphutam.com/san-pham/dich-vu-cho-thue-may-hut-am.htm) với đa dạng lựa chọn. Từ công suất vừa và nhỏ 12-60 lít/ngày dùng cho gia đình đến công suất lớn trên 100 lít/ngày cho kho xưởng nhà máy với chi phí tiết kiệm nhất với hợp đồng thuê theo ngày hoặc theo tháng tùy theo nhu cầu sử dụng. Các thiết bị **máy hút ẩm** cho thuê đều cam kết chính hãng các thương hiệu lớn như FujiE, Kosmen, Harison, Edison, Sharp,...với chất lượng sử dụng cao cấp, đáp ứng mọi nhu cầu sử dụng gia đình cho tới công nghiệp.
+Bên cạnh việc cung cấp giải pháp hút ẩm và bán chính hãng các dòng **máy hút ẩm** không khí thì công ty Hoàng Quân còn cung cấp dịch vụ **cho thuê máy hút ẩm** với đa dạng lựa chọn. Từ công suất vừa và nhỏ 12-60 lít/ngày dùng cho gia đình đến công suất lớn trên 100 lít/ngày cho kho xưởng nhà máy với chi phí tiết kiệm nhất với hợp đồng thuê theo ngày hoặc theo tháng tùy theo nhu cầu sử dụng. Các thiết bị **máy hút ẩm** cho thuê đều cam kết chính hãng các thương hiệu lớn như FujiE, Kosmen, Harison, Edison, Sharp,...với chất lượng sử dụng cao cấp, đáp ứng mọi nhu cầu sử dụng gia đình cho tới công nghiệp.
 
 ![cho thuê máy hút ẩm](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/cho-thue-may-hut-am.jpg)
 
 ## Vì sao nên mua máy hút ẩm không khí chính hãng tại Hoàng Quân?
 
-Với bề dày hoạt động từ năm 2014, công ty Hoàng Quân luôn cam kết mang đến cho khách hàng những sản phẩm chất lượng cùng chính sách bán hàng đáng tin cậy.
+Với bề dày hoạt động từ năm 2014, [**máy hút ẩm Hoàng Quân**](https://github.com/mayhutam/may-hut-am) luôn cam kết mang đến cho khách hàng những sản phẩm chất lượng cùng chính sách bán hàng đáng tin cậy.
 
 Đa dạng mặt hàng: Tại Hoàng Quân luôn có sẵn các dòng **máy hút ẩm gia đình, máy hút ẩm công nghiệp** từ nhiều thương hiệu lớn như Fujie, Kosmen, Edison, Harison, Aikyo, Sharp, Electrolux, Xiaomi, Deerma, Rotor, Roler, Tiross, Kangaroo, Panasonic đáp ứng mọi nhu cầu sử dụng.
 

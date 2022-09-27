@@ -18,6 +18,7 @@ Các dòng **máy hút ẩm gia đình** không khí tại Hoàng Quân đều c
 
 Các model **máy hút ẩm dân dụng** giá rẻ được nhiều gia đình ưa chuộng mua tại Hoàng Quân:
 - FujiE HM-918EC, Fujie HM-916EC, Fujie HM-650EB, FujiE HM-930EC, FujiE HM-920EC, FujiE HM-614EB, FujiE HM-700DN.
+- Xiaomi Deye 12L, Xiaomi Deerma DT16C, Xiaomi New widetech 12L, Xiaomi Widetech WDH318EFW1, Xiaomi Mijia Lexiu WS1.
 - Kosmen KM-12N, Kosmen KM-20N, Kosmen KM-60S.
 - Sharp DW-D12A-W, Sharp DW-E16FA-W, Sharp DW-D20A-W, Sharp DW-J27FV-S.
 - EDISON ED-12B, EDISON ED-12BE, EDISON ED-16B, EDISON ED-16BE, EDISON ED-27B, EDISON ED-7R.

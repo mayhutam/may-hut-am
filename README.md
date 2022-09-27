@@ -46,7 +46,7 @@ Công ty Hoàng Quân là đơn vị chuyên cung cấp các giải pháp hút �
 
 ## Tủ chổng ẩm cho máy ảnh chuyên nghiệp thương hiệu hàng đầu
 
-Ngoài các dòng **máy hút ẩm**, thiết bị xử lý ẩm chuyên nghiệp trong gia đình, công nghiệp thì công ty Hoàng Quân còn cung cấp ra thị trường các dòng [**tủ chống ẩm** ](https://giaiphaphutam.com/tu-chong-am/)cao cấp giúp bảo quản các thiết bị máy chụp ảnh, máy ảnh kỹ thuật số quay phim, ống kính ống lens chụp xa, siêu xa, ống kinh thiên văn, kính hiển vi với thiết kế dạng tủ đứng 2 hoặc 3 tầng có thể chứa được số lượng các thiết bị, máy móc tránh khỏi nhiệt độ cao và ẩm mốc.
+Ngoài các dòng **máy hút ẩm**, thiết bị xử lý ẩm chuyên nghiệp trong gia đình, công nghiệp thì công ty Hoàng Quân còn cung cấp ra thị trường các dòng [**tủ chống ẩm**](https://giaiphaphutam.com/tu-chong-am/) cao cấp giúp bảo quản các thiết bị máy chụp ảnh, máy ảnh kỹ thuật số quay phim, ống kính ống lens chụp xa, siêu xa, ống kinh thiên văn, kính hiển vi với thiết kế dạng tủ đứng 2 hoặc 3 tầng có thể chứa được số lượng các thiết bị, máy móc tránh khỏi nhiệt độ cao và ẩm mốc.
 
 ![tủ chống ẩm máy ảnh](https://raw.githubusercontent.com/mayhutam/may-hut-am/main/tu-chong-am-nikatei-nc30c.jpg)
 
